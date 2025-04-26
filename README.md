@@ -50,8 +50,8 @@
 ---
 
 ### ✨ Let's Connect!
-- [LinkedIn](https://www.linkedin.com/in/elgouzi-oussama)
-- [Twitter/X](https://twitter.com/elgouzi_oussama)
+- [LinkedIn](https://www.linkedin.com/in/oussama-elgouzi)
+- [Twitter/X](https://twitter.com/elgouzi_oussam)
 
 ---
 
